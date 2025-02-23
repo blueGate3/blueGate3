@@ -1,4 +1,6 @@
 -FRC Team 1111 Programmer
-  -October 2023-May 2024-
+  -October 2023- Present-
+High school sophomore
+
   
   
